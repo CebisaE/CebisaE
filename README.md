@@ -20,8 +20,6 @@ Others: Wordpress Figma Canva Photoshop
 
 **✨ Fun Facts**
 
-I am part of the Alphabet Mafia, Alphabet gang, Lgdstv (🏳‍🌈) 
-
 I play CODM (call of duty mobile)
 
 I’m looking to collaborate on projects
