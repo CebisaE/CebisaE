@@ -20,8 +20,6 @@ Others: Wordpress Figma Canva Photoshop
 
 **✨ Fun Facts**
 
-I play CODM (call of duty mobile)
-
 I’m looking to collaborate on projects
 
 As a kid, I thought nerds were weird
